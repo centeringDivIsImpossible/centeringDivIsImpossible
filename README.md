@@ -7,7 +7,7 @@
 - 
 - 📫 How to reach me instagram -> @_carlos.henriq.os
 
-- ✨ agora em português que é a minha linha nativa mesmo.
+- ✨ agora em português que é meu idioma nativo mesmo.
 
 - 👋 Oi, meu nome é Carlos Henrique.
 
